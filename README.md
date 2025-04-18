@@ -121,4 +121,4 @@ If you'd like to contribute to IND News, follow these steps:
 
 ## Contact
 
-For any inquiries or feedback, please contact us at [mohd.aakib208381@gmail.com](mailto:mohd.aakib208381@gmail.com).
+For any inquiries or feedback, please contact us at [arbabshaikh901@gmail.com](mailto:arbabshaikh901@gmail.com).
